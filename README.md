@@ -28,4 +28,6 @@
 ![Screenshot (26)](https://github.com/nakulvsalat/images2/assets/78478397/97251b31-8872-4e82-ad16-370d07d93968)
 ![Screenshot (27)](https://github.com/nakulvsalat/images2/assets/78478397/90a795cb-44a4-4305-90f1-d62927d06280)
 ![Screenshot (1)](https://github.com/nakulvsalat/images2/assets/78478397/dbc6d525-8ae4-4a05-b4ef-d20fa48f82ee)
+![Screenshot (3)](https://github.com/nakulvsalat/images2/assets/78478397/868818ae-aecb-47c6-a59e-f223528e7a11)
+![Screenshot (2)](https://github.com/nakulvsalat/images2/assets/78478397/aac8a72a-7043-4e8c-9d9d-5272b68973e5)
 
