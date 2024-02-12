@@ -46,5 +46,6 @@
 ![Screenshot (19)](https://github.com/nakulvsalat/images2/assets/78478397/cdd5e0b3-fe62-4359-af1e-b6879db87492)
 ![Screenshot (65)](https://github.com/nakulvsalat/images2/assets/78478397/77177cee-2541-4ae2-914a-13085fec56d7)
 ![It’s OK, Life hai](https://github.com/nakulvsalat/images2/assets/78478397/4e5ff785-de33-42c4-b1f6-59bf1abe84f9)
+![Screenshot (66)](https://github.com/nakulvsalat/images2/assets/78478397/fb5d59e4-430f-4827-aeb0-64a1893ef744)
 
 
