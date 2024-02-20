@@ -47,5 +47,6 @@
 ![Screenshot (65)](https://github.com/nakulvsalat/images2/assets/78478397/77177cee-2541-4ae2-914a-13085fec56d7)
 ![It’s OK, Life hai](https://github.com/nakulvsalat/images2/assets/78478397/4e5ff785-de33-42c4-b1f6-59bf1abe84f9)
 ![Screenshot (66)](https://github.com/nakulvsalat/images2/assets/78478397/fb5d59e4-430f-4827-aeb0-64a1893ef744)
-![ezgif-2-25a869335b](https://github.com/nakulvsalat/images2/assets/78478397/2a66d555-1dac-4b30-a1ad-ec7c1b13a741)
+![ezgif-1-6cf34ce099](https://github.com/nakulvsalat/images2/assets/78478397/8f345105-fef0-499b-9daf-adcd67176ebf)
+
 
