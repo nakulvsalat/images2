@@ -56,4 +56,4 @@
 ![Screenshot 2024-03-19 085052](https://github.com/nakulvsalat/images2/assets/78478397/eef97b2b-485f-4592-ac67-d577b0baa0ee)
 ![Screenshot (79)](https://github.com/nakulvsalat/images2/assets/78478397/872b6aaf-0d80-49c4-864c-549ff3cb010a)
 ![Screenshot (80)](https://github.com/nakulvsalat/images2/assets/78478397/f08fe7de-5323-4ff9-ac43-3bb57a504863)
-
+![Screenshot (82)](https://github.com/nakulvsalat/images2/assets/78478397/89b90e77-541e-4b89-b9c0-4319be72e7eb)
